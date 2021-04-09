@@ -8,4 +8,4 @@
 🙉&nbsp; 𝙸'𝚖 𝚌𝚞𝚛𝚛𝚎𝚗𝚝𝚕𝚢 𝚗𝚘𝚝 𝚘𝚙𝚎𝚗 𝚏𝚘𝚛 𝚗𝚎𝚠 𝚓𝚘𝚋 𝚘𝚙𝚙𝚘𝚛𝚝𝚞𝚗𝚒𝚝𝚒𝚎𝚜, 𝚝𝚑𝚊𝚗𝚔 𝚢𝚘𝚞.
 
 ##### Feel free to check out our website:
-[![Kaktus Kreatives 🌵](https://github.com/OArnarsson/OArnarsson/blob/master/Kaktus-200x60%20(1).png?raw=true)](https://kaktus.is)   
+[![Kaktus Kreatives 🌵](https://github.com/OArnarsson/OArnarsson/blob/master/KaktusLogo-200x60.png?raw=true)](https://kaktus.is)   
